@@ -1,0 +1,2 @@
+Sports Magazine
+Joe Schmo
